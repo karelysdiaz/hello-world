@@ -1,5 +1,4 @@
 # hello-world
-I'm hoping to expand my skills and finally gain an upper hand at the competition. 
+Hi there, fellow guy/gal! 
 
-
-Expanding data about myself: I'm a college student studying something that is completely irrelevant at this moment. Maybe after I finish the degree I'll gain a master's on information technology. 
+I'm Ms. Diaz, a graphic designer working to expand my skills and portfolio to help out clients in need of a solid execution with their product or service via a design, website or app. Feel free to chat with me; I'm interested to know you well. I'm currently bilingual with English and Spanish. 
